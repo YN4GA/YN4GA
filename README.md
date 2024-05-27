@@ -10,7 +10,9 @@
 - Pré-contrato com a MIBR sendo progamador
 - I worked in Positivo for 2 years
 - Listening MC IG
-- Possuo um ex WebNamoro com o *NDZ*, porém terminamos no início do ano após brigas por CS 
+- Possuo um ex WebNamoro com o *NDZ*, porém terminamos no início do ano após brigas por CS
+- Participei do Reality Show: Irmãos a Obra 04/06/2011
+- Apos o terminio com o *NDZ* busco um novo amor.
 - Voce pode entrar em contato comigo por aqui📧:
 - guiguito2005@gmail.com
 
