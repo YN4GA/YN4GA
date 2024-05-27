@@ -9,7 +9,7 @@
 - Repositor de Mercado - Extra
 - Pré contrato com a MIBR sendo progamador
 - I worked in Positivo for 2 years
-- Listening MC Ig
+- Listening MC IG
 - Possuo um ex WebNamoro com o *NDZ*, porém terminamos no início do ano após brigas por CS 
 - Voce pode entrar em contato comigo por aqui📧:
 - guiguito2005@gmail.com
